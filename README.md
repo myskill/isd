@@ -1,0 +1,2 @@
+# isd
+ We are introduced our self as An Institute of Skill Development Training Society, A Leading educational institute in Uttar Pradesh for last 03 yrs. Who share a common desire to bring about social change by empowering the unemployed and out-of-work youth by training them on vocational skills to make them 'Eduployable' [Educated + Employable].   This endeavor in turn, is aimed at giving a huge boost to the up scaling economy of the nation by making available, much-needed skilled manpower to the job market.  
